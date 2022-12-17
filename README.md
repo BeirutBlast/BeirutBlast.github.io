@@ -1,3 +1,3 @@
-# BeirutBlast.github.io
-
+hdzkhdljaqpofqmdmskfhnfnfkeifsk;d,sk
 ##Introduction
+Social networks correspond to an interactive space that has both multiple opportunities to share and discuss the most relative political, economic, social and other topics. On August 4, 2020, a double explosion took place at the port of Beirut, the detonations of which were felt throughout the country. Via social networks especially Twitter, the world’s media outlets begin to relay information and news about the explosion at the very moment and live, the first information concerning the reasons for the tragedy, the evolution of the situation such as the number of victims or the state of play, the solidarity and the reactions to the tragic event from around the world. Throughout media cloud and network mapping, we will compare the western and eastern reactions throughout the time vis à vis the Beirut port explosion.
